@@ -1,1 +1,0 @@
-# KTA21eVersiooniHaldus
